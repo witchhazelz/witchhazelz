@@ -1,4 +1,4 @@
-                                                             ₊˚ʚ ᗢ₊˚✧ ﾟ. 
+                                                             ₊˚ʚ Bio₊˚✧ ﾟ. 
 - Hi, I’m Aisha. I'm 15.
 - I’m interested in videogames and random code that looks interesting.
 - How to reach me: feel free to ask for my email.
