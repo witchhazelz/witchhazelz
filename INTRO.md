@@ -1,4 +1,3 @@
-Hi. I know how to program, and I make silly little projects. 
-Im just dumping some projects I made here.
-Go play jet set radio.
-bye.
+Hi, I like to program in all sorts of languages. 
+
+I sometimes program on my 3DS and Casio fx-9750giii.
